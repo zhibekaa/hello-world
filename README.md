@@ -1,8 +1,4 @@
 # hello-world
 Just another repository
 
-jdfgnlksjg
-
-sfgng;skndfg
-sdfgsndfg
-sfg
+Look at that stuf, isn't that neet?
